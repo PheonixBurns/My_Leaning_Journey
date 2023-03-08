@@ -1,4 +1,4 @@
-# My_Leaning_Journey
+# My_Learning_Journey - lease forgive spelling errors.
 
 Day 1 - pre-course learning (08.03.23)
 i have been revising HTML code and learning more about how the internet works. trying to refeesh from doing the homework (stage 2) to get on the cuorse. Having to reimind myself that I am on the first rung and doeasn't matter if there are others that know more. All that maters is that I am trying my best.  
